@@ -1,4 +1,4 @@
-# I'M HYPER, I'M HYPER! OH WAIT, I'M NOT...!
+# ARKNIGHTS!!!
 
 Hello!!! I go by the name of **K**uro or **N**ue! But you can also call me **A**me! I'm a very friendly person and tend to be quite shy around strangers. But, when we actually start talking, you'll see how chatty I can be! Please, let me know what you're comfortable and not comfortable with when we interact! So I can avoid making you uncomfy. It's very important(at least, to me) to make sure you're having a nice experience with me. Sometimes, i'll be around goiing full hyper or just messing around with some friends, but I'm mostly quiet overall.
 

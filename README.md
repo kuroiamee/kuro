@@ -4,7 +4,7 @@
 
 ![Katze_91](https://github.com/kuroiamee/kuroiamee/assets/112840661/78c171a0-d1f9-46fe-bd1b-a99e23eafdfe)
 
-I'm really anxious & nervous when it comes to certain topics, If I do not reply or remain quiet, please take the hint. Don't drag drama to me or to any of my friends, that's the last thing we want to deal with. I don't mind cuddles or hide, so, you're always free to come and sit with me, if you wish(**If I'm with friends, please don't. Mostly for their comfort </3**)
+I'm really anxious & nervous when it comes to certain topics, If I do not reply or remain quiet, please take the hint. Don't drag drama to me or to any of my friends, that's the last thing we want to deal with. I don't mind cuddles or hide, so, you're always free to come and sit with me, if you wish(**If I'm with friends, please, do ask them first.**)
 
 ![tumblr_inline_o1omjdeRXf1tjuw11_540](https://github.com/kuroiamee/kuroiamee/assets/112840661/814ae6ca-00f0-46c3-b6a1-73437323a095)***[日本語/English/Portuguese]***![raincat](https://github.com/kuroiamee/kuroiamee/assets/112840661/a373f9ae-5343-4180-aab4-f5162b64693c)
 
